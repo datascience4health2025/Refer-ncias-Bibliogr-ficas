@@ -8,4 +8,5 @@ Fulvia Ceccarelli*, Francesco Natalucci, Licia Picciariello, Claudia Ciancarella
 
 Benjamin YF Então,Desmond YH Yap eTak Mao Chan.MicroRNAs na nefrite lúpica – papel na patogênese da doença e aplicações clínicas. Internacional J. Mol. Ciência. 2021, 22 (19), 10737; Internacional J. Mol. Ciência. 2021, 22 (19), 10737; https://doi.org/10.3390/ijms221910737
 
-Jamal Mikdashi e Ola Nived. Medição da atividade da doença em adultos com lúpus eritematoso sistêmico: os desafios da carga administrativa e da capacidade de resposta às preocupações dos pacientes na pesquisa clínica.Pesquisa e Terapia para Artrite volume 17 , Número do artigo: 183 ( 2015 ). Este artigo é responsável em: https://arthritis-research.biomedcentral.com/articles/10.1186/s13075-015-0702-6
+Jamal Mikdashi e Ola Nived. Medição da atividade da doença em adultos com lúpus eritematoso sistêmico: os desafios da carga administrativa e da capacidade de resposta às preocupações dos pacientes na pesquisa clínica.Pesquisa e Terapia para Artrite volume 17 , Número do artigo: 183 ( 2015 ). Este artigo esta disponível
+em: https://arthritis-research.biomedcentral.com/articles/10.1186/s13075-015-0702-6
